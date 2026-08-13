@@ -123,6 +123,23 @@ Yes. You need a Peacock account to access content after installing the app.
 
 Check your internet connection, free up storage space, update your device software, and try installing again.
 
+READ MORE......
+
+`Peacock TV Login <https://peaccockktvguide-peaocktv.readthedocs-hosted.com/en/latest/>`_
+ 
+`Peacock TV Sign In <https://peacocktvsignin-peacocktvsignin.readthedocs-hosted.com/en/latest/>`_
+ 
+`Peaccok TV Fix <https://fixpeacocktv-fixpeacocktv.readthedocs-hosted.com/en/latest/>`_
+
+`Peacock TV Helpline <https://youtu.be/zKenv4_64eU>`_
+ 
+`Peacock TV Cancel <https://youtu.be/duWFWoGZimc>`_
+ 
+`Peaccok TV Sign Up <https://youtu.be/lklh8UTikno>`_
+
+
+
+
 Tips for a Smooth Download
 --------------------------
 
